@@ -1,3 +1,3 @@
 kutya
-ingyen bor
+ingyen pálinka
 macska
